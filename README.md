@@ -1,0 +1,2 @@
+# nauka
+pozyjemy zobaczymy 
